@@ -1,1 +1,0 @@
-# Masi-Resum-homework
